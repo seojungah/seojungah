@@ -6,9 +6,9 @@
 
 👩 **MY NAME IS** Jungah Seo
 
-🎓 **MAJOR** edia Designer
+🎓 **MAJOR** Media Designer
 
-🔮 **JOB IS** uxui Designer
+🔮 **JOB IS** UXUI Designer
 
 🤙 **E-Mail** sjungah99@gmail.com
 
