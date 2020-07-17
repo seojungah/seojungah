@@ -4,4 +4,8 @@
 
 [![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=seojungah&show_icons=true)](https://github.com/seojungah)
 
-
+👩 MY NAME IS Jungah Seo
+🎓 MAJOR edia Designer
+🔮 JOB IS uxui Designer
+🤙 E-Mail sjungah99@gmail.com
+🧠 I LIKE STUDY Front Development
