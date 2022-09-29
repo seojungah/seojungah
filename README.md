@@ -8,9 +8,9 @@
 
 🎓 **MAJOR** Media Designer
 
-🔮 **JOB IS** UXUI Designer
+🔮 **JOB IS** Front developer
 
 🤙 **E-Mail** sjungah99@gmail.com
 
-🧠 **I LIKE STUDY** Front Development
+🧠 **I LIKE STUDY** Web Front Development
 
